@@ -8,3 +8,4 @@ La causa por la que muchos embarazos no deseados y de mujeres muy jovenes es que
 Si la educación sexual y reproductiva se vuelve más común, muchos más jovenes tendrían el conocimiento de las consecuencias de tener relaciones sexuales sin las precauciones necesarias.
 El problema es que las escuelas quieren mantener esto secreto, ya que lo demominan "indecente" para los adolescentes.
 Esta mentalidad es incorrecta, ya que perjudica las oportunidades de aprendizaje sobre la sexualidad y la reproducción.
+Por esto mi segunda propuesta es que las escuelas deben dejar esta mentalidad. Por las razones anteriores, esto justifica mi propuesta.
