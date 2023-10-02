@@ -9,3 +9,4 @@ Si la educación sexual y reproductiva se vuelve más común, muchos más jovene
 El problema es que las escuelas quieren mantener esto secreto, ya que lo demominan "indecente" para los adolescentes.
 Esta mentalidad es incorrecta, ya que perjudica las oportunidades de aprendizaje sobre la sexualidad y la reproducción.
 Por esto mi segunda propuesta es que las escuelas deben dejar esta mentalidad. Por las razones anteriores, esto justifica mi propuesta.
+Mi tercer propuesta es para que los padres tambien den educación sexual y reproductiva a sus hijos desde 4to de Primaria. Esto les dará el conocimiento para poder tener una mejor experiencia de..."placer" en el futuro.
